@@ -1,4 +1,4 @@
-#  
+#  elite Scripts for aura ascension offers the most advanced aura ascension Script, with anti-ban and auto-sell. Perfect for dominating any match.
 
 
 
